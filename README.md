@@ -1,3 +1,1 @@
-hi
-
-am goos(e)
+the trick is to appear competent
